@@ -1,1 +1,1 @@
-# Japanese-sweets2
+https://github.com/KseniaBorisenko/JapaneseSweets
